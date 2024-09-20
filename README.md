@@ -1,6 +1,6 @@
 # 疾风云机场官网地址
 
-最新地址：[jifengcloud.net](https://jfdog.net/auth/register?code=bkjg)
+最新地址：[jifengcloud.net](https://jif44.net/auth/register?code=bkjg)
 
 ## 疾风云介绍
 
