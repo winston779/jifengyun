@@ -1,6 +1,6 @@
 # 疾风云机场官网地址
 
-最新地址：[jifengcloud.net](https://jif44.net/auth/register?code=bkjg)
+最新地址：[jifengcloud.net](https://jif637.net?code=bkjg)
 
 ## 疾风云介绍
 
@@ -12,13 +12,11 @@
 
 ## 疾风云优惠码
 
-🎉 疾风庆五一,欢乐送福利！🎉
+【双十一狂欢特惠】 今年最后福利！！
 
-包年 7折 优惠码: jf2025
+包年 7折 优惠码: JF1111
 
 半年 9折 优惠码: JF888
-
-📅 活动截止日期：6月1日，不要错过哦！
 
 ## 疾风云价格
 
